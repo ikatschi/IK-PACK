@@ -1,6 +1,6 @@
 ## IK PACK
 
-Here my fellow brother [DOWNLOAD](http://fumacrom.com/2S7JI) │ [MIRROR](https://www.mediafire.com/file/4xqxzqebvuq4kyo/%25C2%25A75IK._Pack_%25C2%25A7l%2528v.0.9.2%2529.zip/file) │ ([Optifine](https://optifine.net/downloads) _REQUIRED_!) │ Version: 1.17.1
+Here my fellow brother [DOWNLOAD](http://fumacrom.com/2S7JI) │ [MIRROR](https://www.mediafire.com/file/4xqxzqebvuq4kyo/%25C2%25A75IK._Pack_%25C2%25A7l%2528v.0.9.2%2529.zip/file) │ ([Optifine](https://optifine.net/downloads) _REQUIRED_!) │ Version: 1.18
 
 Btw some screenshots:
 ![2021-10-10_02 01 21](https://user-images.githubusercontent.com/92234831/136676728-6e9126c7-525a-4d28-9008-7385d02335b0.png)
